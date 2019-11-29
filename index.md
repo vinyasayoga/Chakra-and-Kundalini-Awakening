@@ -1,9 +1,10 @@
 <p>Yoga learning is meant to be the best method of awakening inner-self through various physical and non-physical ways. If you feel spiritually awakened, you can find control on positive and negative emotions, and also understand the purpose of life on earth. Chakras and kundalini awakening are ways to attain full enlightenment. You can channelize your potentials to transform your living and lifestyle practicing  Kundalini yoga. The free-flow of energy through the chakras leads to a state of consciousness – which is most essential for understanding for every human being on earth.</p>
-<img src="https://drive.google.com/file/d/13IqIFyemHsV2jdmSjH4yGMG3LgzFiBpW/view" alt="Kundalini Yoga" title="Yoga Teacher Training in India"></img>
+<img src="https://www.google.com/imgres?imgurl=https%3A%2F%2Frishikeshvinyasayogaschool.com%2Fwp-content%2Fuploads%2F2019%2F06%2FIMG-20190603-WA0013-1170x658.jpg&imgrefurl=https%3A%2F%2Frishikeshvinyasayogaschool.com%2F2019%2F06%2F05%2Fthe-best-season-based-yoga-destinations-in-india%2F&docid=cDDs5oLKg9-cwM&tbnid=S9zgmmLj78YnYM%3A&vet=12ahUKEwjG0aiU-Y7mAhWUguYKHSGOAVg4ZBAzKAkwCXoECAEQCg..i&w=1170&h=658&itg=1&hl=en&bih=657&biw=1360&q=site%3Ahttps%3A%2F%2Frishikeshvinyasayogaschool.com%2F&ved=2ahUKEwjG0aiU-Y7mAhWUguYKHSGOAVg4ZBAzKAkwCXoECAEQCg&iact=mrc&uact=8" alt="Kundalini Yoga" title="Yoga Teacher Training in India"></img>
 
 <h2>Kundalini Awakening</h2>
 
 <p>Along the base of the spinal cord, there lies a powerful source of energy in the human body.  It is in a coiled shape like a serpent sleeping in the dormant state. They connect themselves with eight different chakras (the energy centers). Each chakra in the human body corresponds to various elements of nature with mantra and color. They are –</p>
+
 <li>
 <ul>Sahasrara – crown center</ul>
 <ul>Bindu – moon center</ul>
@@ -24,6 +25,7 @@
 <h3>Common signs and symptoms - Kundalini Awakening</h3> 
 
 <p>The very best way to awaken kundalini is mentioned above. Know what are the common signs and symptoms here -</p>  
+
 <li>
 <ul>Wonderful tinkling sensation along the spinal cord.</ul>
 <ul>Sense of intuition becomes stronger</ul>
