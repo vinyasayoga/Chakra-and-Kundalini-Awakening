@@ -1,5 +1,5 @@
 <p>Yoga learning is meant to be the best method of awakening inner-self through various physical and non-physical ways. If you feel spiritually awakened, you can find control on positive and negative emotions, and also understand the purpose of life on earth. Chakras and kundalini awakening are ways to attain full enlightenment. You can channelize your potentials to transform your living and lifestyle practicing  Kundalini yoga. The free-flow of energy through the chakras leads to a state of consciousness – which is most essential for understanding for every human being on earth.</p>
-<img src="https://rishikeshvinyasayogaschool.com/wp-content/uploads/2019/09/Vinyasa-Yoga-School-Bali-Location-1-500x350.jpg" height="400" width="600" alt="Kundalini Yoga"/>
+<img src="https://drive.google.com/file/d/13IqIFyemHsV2jdmSjH4yGMG3LgzFiBpW/view?usp=sharing" height="400" width="600" alt="Kundalini Yoga"/>
 
 <h2>Kundalini Awakening</h2>
 
